@@ -2,6 +2,11 @@
 
 ![Screenshot 2025-06-15 031351](https://github.com/user-attachments/assets/d8b291a2-51d9-40a7-8cc1-0ccc9620e9d5)
 
+---
+
+# Showcase video: https://www.youtube.com/watch?v=gEbaSCPiz_U&ab_channel=17xet
+
+---
 
 ## Overview
 
